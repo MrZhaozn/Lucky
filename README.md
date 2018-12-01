@@ -1,2 +1,2 @@
 # Lucky
-So fay so Lucky
+So far so Lucky
